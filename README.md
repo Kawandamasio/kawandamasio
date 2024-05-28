@@ -7,7 +7,9 @@
  
  sou ATLETA de futsal 
 
- minha terapia e jogar futsal e futebol :bal
+ minha terapia e jogar futsal e futebol 🥎
+
+
 ![](https://media1.tenor.com/m/mtXWjUVNwEwAAAAC/truck-le-dlogo-by-le-dletter-truckspecials-holland.gif)
 
 
